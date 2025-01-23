@@ -1,1 +1,1 @@
-Vive le 14 févriergit checkout master!
+Vive le 14 février!
